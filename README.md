@@ -1,2 +1,0 @@
-# Scout-Consultatory
-Freelance Website 
